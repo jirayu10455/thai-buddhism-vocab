@@ -1,1 +1,0 @@
-# thai-buddhism-vocab
